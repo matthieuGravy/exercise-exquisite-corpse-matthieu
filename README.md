@@ -6,3 +6,5 @@ Vous l'avez compris, c'est totalement incroybale.
 UN jour en allant à l'ecole il vit un chien qui vit un autre chien et ils hop ces batards ont courru mais pour quoi ....
 
 ils furent fatigués et se sont couché à meme le sol pour se reposer. le sol s'ouvrit.. la suite fut incroyable  
+
+Il est parti faire quelques courses, et quand il est revenu, c'était la catastrophe. Sa maison était innondé. Il avait oublié de fermer le robinet après sa douche.
