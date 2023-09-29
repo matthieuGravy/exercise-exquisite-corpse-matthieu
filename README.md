@@ -21,3 +21,5 @@ effrayée elle essaye d'éechapper mais rien ,il la devore.
 ###porté disparue jusqu'a aujourd'hui lol
 Il etait une fois un oiseau qui ne savait pas voler,
 alors il a prit un red bull.
+
+le canard fini par mourir de fatigue ou de faim, personne ne le sera.
